@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am an aspirind developer and a college student looking for opportunities
+I am an aspiring developer and a college student looking for opportunities
 
 
 ## 🌐 Socials:
